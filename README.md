@@ -1,1 +1,1 @@
-# [github.com/aptemkov](https://github.com/aptemkov)https://github.com/aptemkov
+# [github.com/aptemkov](https://github.com/aptemkov)
